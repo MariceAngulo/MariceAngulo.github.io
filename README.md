@@ -4,3 +4,5 @@ I have an energetic and enthusiastic personality. My interests are in contempora
 
 ## **Curriculum Vitae**
 ![CV1](https://i.ibb.co/yPzWGDh/CV-PW-Marice-Angulo-page-001.jpg)
+![CV2](https://i.ibb.co/H4DJT4F/CV-PW-Marice-Angulo-page-002.jpg)
+![CV3](https://i.ibb.co/H4DJT4F/CV-PW-Marice-Angulo-page-002.jpg)
