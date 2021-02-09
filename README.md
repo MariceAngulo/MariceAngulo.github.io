@@ -1,5 +1,5 @@
 # Welcome to my professional repository
-## Here you will find ...
+## Here you will find
 
 The updated versions of my Curriculum Vitae and Portfolio of Works. You can right click on each section and download the presented images. At the end of each section you will find a download link which will provide you with the documents in a PDF format. 
 
