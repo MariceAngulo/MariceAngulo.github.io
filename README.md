@@ -7,4 +7,4 @@ The updated versions of my Curriculum Vitae and Portfolio of Works. You can righ
 ![CV1](https://i.ibb.co/yPzWGDh/CV-PW-Marice-Angulo-page-001.jpg)
 ![CV2](https://i.ibb.co/H4DJT4F/CV-PW-Marice-Angulo-page-002.jpg)
 ![CV3](https://i.ibb.co/H4DJT4F/CV-PW-Marice-Angulo-page-002.jpg)
-[CV-PDF](http://github.com)
+[Download PDF](https://pdfhost.io/v/d.XsvXq8Z_21_Resume_Marice_Angulopdf.pdf)
