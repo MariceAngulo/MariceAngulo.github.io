@@ -9,6 +9,6 @@ The updated versions of my Curriculum Vitae and Portfolio of Works. You can righ
 [DOWNLOAD PORTFOLIO](https://pdfhost.io/v/mJz2Tudky_Portfolio_of_WorksMariceAngulo.pdf)
 
 
-![IMG1](https://lh3.googleusercontent.com/qCSr1Ij8zpWIGVQqRe_XtBdpo-TAQpHyThkxtP8Jxr5rd5_4XMCxqGdIvCZoOOyXyYDkxa3QxreKnkeqPDF6uQNc65R7B2pAgMkJQXHKrNfyVqa_7Iqi5-DbT3dCL0eLfhvaafYu9Ds=w2400)
-![IMG2](https://lh3.googleusercontent.com/Wu6nvySLwwFLi_35zH17z9r54ZlZCvyqLocZ_L38nnC5Z3qpeXefck7zt6VnWIyxxwJkaojwlHnmCdlppZi9w9YhrAOxkzpMVnTUEbi6X1dBFtIa6VjBhjqUJo9f1V_Pp_GQ2h1tv8k=w2400)
-![IMG3](https://lh3.googleusercontent.com/fyN3GgYscgfLoCqkL8jNmpTy3f8vRUWgxS1R6QFyTd10o4FDWIGRdx_SG4lGKbl7lSDtW1Mj-IB4CfUW6uSUGACJVwY1P3maHHI9VGPW8gIIxogVt1RXoAyHhs2IsqHSdnLZwLudiVQ=w2400)
+![IMG1](https://lh3.googleusercontent.com/SK1gCSTYE5oN4iEmeZzHaSVFjDsuAYWzY4mYONcFXzITVRm2IxSRyZakac8lKt4WlgSCOJU1heY3C3nuxkS3r4ZvZvfdUPBHvqJ0tB7u8l_12aANnd950ykniw0H4uawVmd-40jGExA=w2400)
+![IMG2](https://lh3.googleusercontent.com/idVnl4PA9rSVJF3Ytwpf0-lsn8Fxhd7TJySCEJpzx-LqHOCQ3oJ-47m_cx6YIfDS1MILHbVuT-2CT48s1G_pyiT1-RtHouJuqRPKYVtm_YqyBE6QOx1T__MeEIqNByuXETu4nelKwjA=w2400)
+![IMG3](https://lh3.googleusercontent.com/PYjVPg_d9hMtOjMyBT6tW1Kb3R7I4BwV6OvLhnK84-QyuZGkh35Sr3JrcB8AiApHvvhEiZaNlcwbcNz1AI9kYt6jV6zLstNK421nWVxsPMi___3rPDm2GwNffsbctWBwD0YE6mdBCQw=w2400)
