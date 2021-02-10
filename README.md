@@ -10,7 +10,7 @@ The updated versions of my Curriculum Vitae and Portfolio of Works. You can righ
 
 
 
-![CV1](https://lh3.googleusercontent.com/NvTlvHXFJ2_8GPE3LARvKcOBEulFajo9Yf7h07rcA-Mg68jawJdxKDXAC3ZoqSTeUJYC9jI7mi09VkNcUuZXYaEgY99_4DYcu9t3JI-mJefVM4F6gWtMLrIN0DKUBh4UzFVr4zfLjM0=w2400)
-![CV2](https://lh3.googleusercontent.com/XMCjdLa7aytJ-LO_Hjb1pQoTvla8KHeSC-yB-k9sk9TOpQQkjY1kD-DKP8p8RxCSKz21B508Wc6sz-kvUwVrg-8WfCdlgj2GvIa7fxN3sYrwikT2o6Qn8QKa4fNLJUJ_9ZWzHBnZ8lk=w2400)
-![CV3](https://lh3.googleusercontent.com/Jx2RrxbtRbGcDszuE5Ea9GYvJODU8En0J_ubqypgsQub2Fs5v9jZvJxG4BDSbRTQVoH3SDE77L8SqUXwXjQsTNV-zLR2s9MnVyEsPkApeWcydU1qg3_FGBIdxCfVUjltRHouph0MGSw=w2400)
-![CV4](https://lh3.googleusercontent.com/2QGh6Oh21itjOL8rxjRwNkFJqTERO86ueYjwMbV7IoiXoZAxFo4gCScBW1IXJykeiRBUyBEAEAI6r5FPqitv4VRNdLT49SvXvTkhNbB_JY2Tw5qMMS6-ZP1ysteUYuD0sgi7EkyWXNo=w2400)
+![CV1](https://lh3.googleusercontent.com/M6AXE3awA_ceU_HVwxku67HBLTRIhhKt7LuZD3EGNrs3XIMloEso1toVujWBKWbcuqg-GbBpWvIm4aUAzafWWBt9FATs3TyRxWuBeJEjOsIDwSwwWbd5C0PjH8F8kUjxmdmgdIDdNcQ=w2400)
+![CV2](https://lh3.googleusercontent.com/03vN6xskEsww6EqqoJeG6Z78ywYGo6U8Trtvxg60D-75op__AT7e-eH4VTov5VfJlSw8UZ9dp0opJTlJ9oMi2czmRfjXiUT7ccJq1NFGz17Mwy79ukhcWMWIIx24oPddrrx402cfotg=w2400)
+![CV3](https://lh3.googleusercontent.com/zIcFio1-yK6p6i3Ae4WnNtoSMbuPUQN8adqJ2M1eyOC1EnmLYgK2_1e_Ch434AgBSymIvswD-s5qbm2x9LFrhJfbyYJ1jg9uzhDLgWg7QmS8CLxDLnYvreZ6Nw6-P0YQGPqnsTjDBts=w2400)
+![CV4](https://lh3.googleusercontent.com/5EIRiHM_E_xhfBv_PA_egnPyYcq3--k6XVQdkINwT2wVdc-WoDvWO3VyUWsHxG_pkHxNRXbbbUO8vqEovHUNia0Ap91FXVsQb9_qbAgYv1fm5W-f58oWfo2cdOP4lBhBQABgs8xYo6w=w2400)
