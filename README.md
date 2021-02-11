@@ -1,5 +1,3 @@
-# Welcome to my professional repository
-
 ![HOLA](https://lh3.googleusercontent.com/xSdRAojqCGEx5h85OSBYirAwcDQBCU3-6uFCdDIFpzrUGMWS4_aPr_XszEfLcsNskbP87w6juzt54Aece1iuWlfQmI-JsFyGzJLviGcR-Pq48W51D056cSuUy2c5uLRz7fDK4vFedwA=w2400)
 ### *Here you will find*
 
