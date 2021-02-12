@@ -2,7 +2,7 @@
 ### *Here you will find*
 
 The updated versions of my Curriculum Vitae and Portfolio of Works. If you want to explore the content on this page, I recommend visualizing the site at a 200% scale [press control key and scroll in].
-You can download the PDF versions of the documents from the following links:
+Additionally, you can download the PDF versions of the documents from the following links:
 
 [DOWNLOAD CV](https://pdfhost.io/v/d.XsvXq8Z_21_Resume_Marice_Angulopdf.pdf)
 
