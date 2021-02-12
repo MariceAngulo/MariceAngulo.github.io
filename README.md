@@ -1,8 +1,8 @@
 ![HOLA](https://lh3.googleusercontent.com/xSdRAojqCGEx5h85OSBYirAwcDQBCU3-6uFCdDIFpzrUGMWS4_aPr_XszEfLcsNskbP87w6juzt54Aece1iuWlfQmI-JsFyGzJLviGcR-Pq48W51D056cSuUy2c5uLRz7fDK4vFedwA=w2400)
 ### *Here you will find*
 
-The updated versions of my Curriculum Vitae and Portfolio of Works. I you want to explore the content on this page, I recommend to visualize the site at a 200% scale [press control key and scroll in].
-You can right click on each section and download the presented images. You can also download the PDF versions of the documents with the following links:
+The updated versions of my Curriculum Vitae and Portfolio of Works. If you want to explore the content on this page, I recommend visualizing the site at a 200% scale [press control key and scroll in].
+You can right-click on each section and download the presented images. You can also download the PDF versions of the documents with the following links:
 
 [DOWNLOAD CV](https://pdfhost.io/v/d.XsvXq8Z_21_Resume_Marice_Angulopdf.pdf)
 
